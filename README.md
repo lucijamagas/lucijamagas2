@@ -1,1 +1,1 @@
-# lucijamagas2
+# lucija_magas
